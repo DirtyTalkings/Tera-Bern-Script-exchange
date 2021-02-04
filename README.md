@@ -1,2 +1,2 @@
-Bern's scripts exchange. I have archer, warrDD, warrT, lancer, berserker, gunner, sorc, reaper, valk, slayer all works. LF WARRIOR 3/1/20 UPDATE updated brawler/priest/myst/ninj. Discord DirtyTalkings#4327
-Обмен скриптами Берна. У меня есть: Лук, варДД, варкТанк ланс, берс, инж, сорк, жнец, валька, слеер все актуальные. ИЩУ ОБНОВУ ВОИНА 3/1/20 ищу апдейт крушителя/приста/миста/шинки. Discord DirtyTalkings#4327
+Bern's scripts exchange. I have archer, warrDD, warrT, lancer, berserker, gunner, sorc, reaper, valk, slayer, brawler all works. LF WARRIOR\BERS 2021 UPDATE updated priest/myst/ninj. Discord DirtyTalkings#4327
+Обмен скриптами Берна. У меня есть: Лук, варДД, варкТанк, ланс, берс, инж, сорк, жнец, валька, слеер, круш все актуальные. ИЩУ ОБНОВУ ВОИНА\БЕРСА 2021 ищу приста/миста/шинку. Discord DirtyTalkings#4327
